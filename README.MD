@@ -1,0 +1,1 @@
+This is my research work, which was made on the 3rd course in HSE. This research is about key factors of startup success
